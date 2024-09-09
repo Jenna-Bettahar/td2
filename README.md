@@ -1,1 +1,1 @@
-"Standing next to you"
+"Still with you"
